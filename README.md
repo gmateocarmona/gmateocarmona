@@ -1,6 +1,6 @@
 ***
 
-I am **Mateo Carmona**, a *Grothendieck scholar*, former *Coordinator*, and current *Archivist* of the "Centre d'Études Grothendieckiennes (CSG)."
+I am **Mateo Carmona**, a Grothendieck scholar, former Coordinator, and current Archivist of the *Centre d'Études Grothendieckiennes (CSG).*
 
 Besides Mathematics and History of Science, I am also interested in *Archival Studies* and *Project Management*.
 
